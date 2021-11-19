@@ -4,8 +4,8 @@
 
 ### 1. Nutzen und zeitlicher Horizont
 
-Die SKKG hat eine Sammlungs-, eine Förderungs- und eine Immobilienstrategie. Sammlungsund Förderungsstrategie stellen die Auslegung der Stiftungsurkunde dar. Die vorliegende Förderungsstrategie zeigt, welche Ziele die SKKG mit der Förderung verfolgt und auf welchen Wegen sie diese erreichen will.
-Die SKKG beginnt mit ihrer strategischen Förderung 2020. Sie bestimmt für ihre erste Förderungsperiode Zielvorstellungen und Handlungsfelder mit einem zeitlichen Horizont von fünf Jahren.
+Die SKKG hat eine Sammlungs-, eine Förderungs- und eine Immobilienstrategie. Sammlungsund Förderungsstrategie stellen die Auslegung der Stiftungsurkunde dar. Die vorliegende Förderungsstrategie zeigt, welche Ziele die SKKG mit der Förderung verfolgt und auf welchen Wegen sie diese erreichen will.  
+Die SKKG beginnt mit ihrer strategischen Förderung 2020. Sie bestimmt für ihre erste Förderungsperiode Zielvorstellungen und Handlungsfelder mit einem zeitlichen Horizont von fünf Jahren.  
 Anforderungen und Abläufe der Förderung sind im Förderungsreglement geregelt.
 
 ### 2. Grundsätzliches
