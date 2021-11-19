@@ -11,6 +11,7 @@ Anforderungen und Abläufe der Förderung sind im Förderungsreglement geregelt.
 ### 2. Grundsätzliches
 
 Als Thema der ersten Förderungsperiode wählt die SKKG «Partizipation im Kulturerbe». Der inhaltliche Schwerpunkt innerhalb des Themas liegt – auch mit Blick auf die eigene Sammlung – auf «Sammeln» und «Bewahren».
+
 Mit der Förderung von Partizipation im Kulturerbe erfüllt die SKKG in zeitgemässer Form den in der Stiftungsurkunde niedergelegten Stifterwillen der Pflege und Vermittlung der abendländischen Kunst-, Kultur- und Geschichtswerte.
 Das Kulturerbe ist der notwendige Kitt der diversen Gesellschaft. Es ist, bei zunehmender Pluralität und Mobilität der Gesellschaft, Grundlage für Demokratie, geteilte Werte und Toleranz. Durch Partizipationsmöglichkeiten im Kulturerbe werden diese Werte vermittelt, gepflegt und gelebt.
 Partizipation ist für die SKKG gelebte Demokratie, realisiert durch das aktive, prozessorientierte Miteinbeziehen von Kulturerbe-Gemeinschaften. Partizipation versteht sie als intensivste Stufe eines mehrstufigen Teilhabeprozesses, der von Expertise einholen über Mitbestimmung bis zur Übertragung von Entscheidungsmacht führt.
